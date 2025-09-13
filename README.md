@@ -1,2 +1,2 @@
 # Renovate-Thubru-
-Success is permanent 
+Eat. Sleep. Code. Repeat.
